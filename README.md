@@ -5,3 +5,4 @@
 - 👯 I’m looking to collaborate on multimedia art development
 - ⚡ Fun fact: i'm also a music producer
 
+Buenos Aires, AR
